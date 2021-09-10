@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shuu-glitch!
+- 👀 I’m interested in gaming, storyboarding / plotting, and some aspects of coding, I guess!
+- 🌱 I’m currently studying Digital Media!
